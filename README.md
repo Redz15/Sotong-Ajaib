@@ -1,0 +1,2 @@
+# Sotong-Ajaib
+El Magicko
